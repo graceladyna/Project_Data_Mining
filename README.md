@@ -133,7 +133,7 @@ Visualisasi yang dihasilkan pada proyek ini meliputi:
 - Jeika Antama Syalom Tarigan (24031554011)
 - Alifiyanti Putri Nur Azizah (24031554032)
 - Grace Pinkkan Ladyna (24031554137)
-- 24031554171 - Astrid Septya Regita Pramesty
+- Astrid Septya Regita Pramesty (24031554171)
 
 ## Mata Kuliah
 
